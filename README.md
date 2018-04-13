@@ -1,0 +1,1 @@
+# majinbouz.github.io
